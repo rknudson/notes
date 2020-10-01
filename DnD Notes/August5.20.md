@@ -1,0 +1,13 @@
+#August 5th 2020
+- Talking with Kluswitz
+	- Tells us to avoid Baker's Dozen
+	- Tells us to avoid Mr. Prism
+	- He has unfinished business in Bageltown
+	- Avoid Bayside Ripper
+- Astral Clubhouse
+	- T'ua - Vuvumonica - a loud, shrill horn capable of cutting through any sound within 30ft.
+	- Kjell - Large patch - Makes people follow orders
+- Primarch Quests
+	- Bring treaty to some capital 
+	- Poke around the apothacary 
+	- Mustard ran away - Primarch wants us to kill him

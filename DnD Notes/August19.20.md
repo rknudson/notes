@@ -1,0 +1,27 @@
+#August 19th 2020
+- Got away from the tree
+	- Farce tried to murder Biscuit
+- Got to Alathnore
+	- Cool Clock Tower
+	- They have a ship 
+	- Looking for Mr. Prism
+		- Going to ask about T'saesar (tay-zar)
+- Mora is looking for an airship
+	- Cool guy says the town won't let him leave
+	- I'm assuming he'll need Electrum
+	- Cool guy's name is "Francis" "Or Iban" I'll call him " Frank"
+- Looking for a Shady Guy
+	- Found a guy in the market with some Theives Cant that said "Fence" 
+	- Is a halfing. Looks like a rat
+	- Dude's a rat
+	- Seems pretty sketch
+	- Rat man might know where Mr. Prism is
+	- Says to go to a building and knock twice. Then knock twice more. Then a guy with two heads will greet us. 
+	- Gave him half now and half later
+- Seems like there's been an earthquake
+	- There was a quake when Kjell met Basil
+	- Lighthouse in the Capital is supposed to stop the earthquake. 
+	- Reeba says we can come back and chat
+	- Plz find Mr. Mittinz🐱 😭
+- The town of Alathnor is racist but doesn't hate orcs, they hate the Dragonborn
+	- 

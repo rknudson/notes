@@ -1,0 +1,8 @@
+# Random Notes
+'T'saesar wasn't much for worldly possessions. He was more interested in taking things apart and seeing how they worked. To him, the business and the wealth it generated was a means to more materials with which to tinker.
+However, he owned one heirloom that he never messed with: a compass carved from the bone of an unknown creature. the exterior is completely seamless and the glass of the interior survived many a fall from the heights of the workshop. He always told T'ua that it was an artifact of their people, passed from master to apprentice since before your people settled the Claw Isles.
+What made it so special is how it interacts with magic. Specifically, the Weave. It always points to the strongest relative source of magic, though it's unreliable the closer you are (like standing on top of a powerful magnet, the needle just spins).
+The night he disappeared he had Tu'a close up shop early while he entertained some guests from a distant land. When you awoke in the morning, you found the workshop undisturbed, strange considering T'saesar was usually up even before the sun. On his desk in the back office you found a note folded under his prized compass. Looking like it was scrawled in a hurry it read:
+"Four sources? Need to think bigger. Gotta scale up. Watch the workshop while I'm away."
+and then in large bold characters near the bottom:
+"A COMPASS POINTS, A LIGHTHOUSE LEADS"

@@ -1,0 +1,73 @@
+#September 23rd 2020
+- Leaving the cave
+	- Found a crew member
+	- Kjell's brother might have paid the crew to boost the egg
+	- He ate mr. mittenz
+	- Got a rug
+	- Farse got smashed by a rock
+- Got out of the cave
+	- Passed by merigold
+	- Had to talk to her
+	- She wants to come with 
+	- Gunna ditch her family
+- Talking with Mr. Prism
+	- Mr. Prism saved Kjell
+	- Kjell 
+		- He had a note from Kjell's brother. 
+			- Kjell. Don't. I played the only card I had to keep you safe. I know you think you can save me, but you can't. 
+		- Mr. Prism believes that the imperion union found an object of great value. Brother doesn't know what it is. The Imperion union is spending manpower to find it. 
+		- Kjell's brother is east. Follow the Wake of chaos the union leaves. 
+		- Kjell's going to pee on the paper
+	- Mora
+		- Duke? 
+		- Dockside gossip - The heir of the duchee of keldar was exiled until she found a heirloom. She gambled away. Or was swindled by corvids
+		- The heirloom was sent to biscuit bay. 
+		- Her family has sent her son after the heirloom
+		- The corvids have sent. 
+		- The roost? Central meeting place for the covids. It's located in Kjelladonioa
+		- Dragu - Treelug = brothers. 
+	- Farse
+		- Who's the primarch
+		- Nickname's "welly" 
+		- He's the last known living member of house wellington
+		- An'antun was a capital of the elven kingdom. 
+			- Was the only capital that wasn't a union capital
+			- Welly tried to make a union coup
+			- Prior to coming to An'antun he was a student of magic
+			- At a fancy school "Ombreic penopticon" ?? 
+		- Needed to describe the ring
+			- Infinate hallway of mirrors
+			- Ring of that appears description Mythos and folklore
+			- Could be the heart of bahamat
+			- "we tend to insert ourselves into other's mythology" 
+	- T'ua
+		- Gave Mr. Prism the rug, man
+		- Where's My Mentor "T'saesar"
+		- He's been detained by the Von-hoof emporers
+		- In service of the corvids 
+		- Caught the attention of "corvis the second"
+		- Rumor is he has a hand in the construction of a lighthosue
+		- Prototype was constructed at lemonhill
+		- Emoror has prioritized the construction of the 
+		- Was to the detriment of the 
+		- Devedar has 
+		- Bertrand believes the lighthouse 
+			- A dazeling golden aura might attract treasure. 
+	- Kristine 
+		- "how do I kill someone but prevent them from dying" 
+		- Headphones cut out. 
+	- Secret for the group
+		- Is it true that when you dream you experience dreams that seem like they're real?
+		- Dreamscale?
+			- Once in a generation a dreamscale is born
+			- "You contain a lot of potential" 
+		- "We are a dragon" 
+			- We recovered their shell
+		- They turn into a dragon
+			- "if you believe in the prophecy I cannot speculate. however it will cause conflict if their nature becomes known" 
+			- We present Kjell an offer. In times long past, a dragon would choose a mortal champion. and enter in with them a bond of blood. 
+			- They are offering this to kjell, the dreamscale. 
+			- Kjell must murder the imperion union. 
+			- They will bind their blood
+
+

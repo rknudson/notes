@@ -1,0 +1,58 @@
+#August 26th 2020
+- In the Gummydrop Inn
+	- The exterior looks like a delapetated 
+	- Interior looks bigger than exterior
+	- Interior looks like a museum not a cottage
+	- Big painting of two dragons fighting. head count: 5v2
+	- There's a lot of draconic words
+- Two headed dude behind the desk
+	- Probably knows Mr. Prism
+	- Ucris and Kethrand (sp? whodat?) (speaker and gem)
+	- B&D
+	- Ucaris gave us a cottage Farse taught him some draconic
+- Hot tub
+	- Sneky Brew
+	- Grab some velum 
+	- Grab the inkwell and quill
+- Back at the the Museum
+	- The right head (Kethrand) is awake
+	- He's wearing a sparkling diamond robe
+		- Looks vvv fancy
+	- Probably Mr. Prism
+- Is Mr. Prism
+	- Knows we took 9 days to get here
+	- Knows about the unpleasentness in An'antun
+	- The airship crew went full blown looting 
+	- He isn't a leader, but has "soft power"
+	- Tells us about Draconic Myth
+	- He thinks Bahamat will be reborn
+	- He also thinks Tiamat will destroy the world
+- We agree to help find his Prismatic dragon egg
+	- Got to check out a dead body
+	- Opens a magic door
+	- Spiral staircase down
+	- Cool cellar 
+	- Body there
+		- Missing things from shoulders up
+		- Boots are caked in white clay
+		- One of the hands is shut with blue feathers in it
+		- Lots of tattoos, looks like sailor's tattoos  
+	- Final warning: He's concerned that whoever stole the egg wanted to create chaos
+		- Could be trade league of biscuit bay
+		- Could be zeinith ventures
+		- Could be anyone
+- Back to the cottage
+	- Biscuit is gone
+	- Farse Finds her
+	- Heartfelt moment
+- Eldretch Hangout
+	- Spookydaddy and the Astral Clubhouse
+	- Buckle of Arcane Energy
+		- Three state dial
+		- Off, Biggerer, Smallerer
+		- Smallerer - 10lbs
+		- Combat - Free action
+		- Once per long action
+		Official: 
+		Dinky Shrinker's Embiggening Belt - a belt that resembles a gear train. The buckle hums with arcane energies. Beneath a hinged metal guard is a tri-state dial that reads"Off""Bigger" - for 6 seconds your size increases to 'Large' and your weight increases by 200 pounds; attacks against you have advantage but you are resistant to all non-magical damage"Smaller" - for 6 seconds your size decreases to 'Tiny' and your weight decreases to 10 pounds; attacks against you have disadvantage but you are vulnerable to bludgeoning damage (double damage)Activating the belt is a free action. Once the belt has been used it cannot be used again until you complete a 'Long Rest'. Requires attunement
+

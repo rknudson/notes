@@ -1,0 +1,29 @@
+#September 2nd 2020
+- Just Met Mr. Prism and took a long rest
+	- Found Mr. Mittenz
+	- Going back to Mystal Journeyz
+	- Frank was hired to do a smash and grab on the egg
+		- Denied the contract
+		- His crew took it
+		- Hasn't seen anyone from the crew since the confrontation. 9 Days ago
+		- Ring leader was the first mate. Cozied up with a "local gal"
+			- Spends time down by the lake 
+- Some altercations with Frank
+	- Looked like he was trying to skip town 
+	- Thought he was threatening to have us killed
+		- Probably wasn't 
+- Chased down a local woman
+	- Creeped her out and she ran away
+	- O'rian said we can't be trusted
+		- We would turn on him
+		- The dragonborns would turn on him 
+		- She says he's in the caves
+		- He's got a cannon
+		- We're going in to the caves 
+- In a cave
+	- Opened a door
+	- Found a mummy
+		- Probably a giant spider somewhere
+		- vvv dead
+		- Halfling
+	- 
