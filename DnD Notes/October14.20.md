@@ -1,0 +1,57 @@
+# October 14th 2020
+- In the Arrival District at Biscuit Bay. Kjell found his brother
+	- Kjell was in the Emperion Union and left?
+	- Biscuit bay is where the empire navy is repaired and stays for the winter
+	- Above that is the townies
+	- East of that is the market district
+	- South of that is the lowlands as the sea has receded it has exposed more land
+	- The island next to that is the super high class island
+	- South of that is the super fancy palace that is the trade league's capital 
+- At the market
+	- Everyone's dressed as tourists
+	- There are flags with Black and Orange (Biscuit Bay colors) 
+	- Lots of mask shops
+	- Few cool tattoo parlors. not what T'ua's looking for
+	- Zeineth Ventures proudly sponsors part of Biscuit Bay Spirit Days
+	- Spirit days is when they stopped the "green terror"
+	- Pitched a character rendering business 
+- Made it to Zeineth Ventures
+	- Completing quests is known across guild halls 
+	- Checking the job board
+		- Royal Archaeological Society is looking for someone to accompany someone into the depths of a long for gotten cave system in which they have credible information indicating that a stronghold that was constructed of the era of the Obliete empire can be found. We can keep any items of value that are not of archeological significance - in Bialyvale
+		- Lady Perth Windham is looking for Mrs Mittens (fancy writing)
+			- Says where the Windham estate is (on the private island)
+		- Pete Tom's is looking to buy your shiny shit. (punk rock)
+- Leaving the guild hall
+	- Crowd yelling at a gnome dressed as a city guard. It's _a_ Kluswitz  
+		- "Another slaying" 
+		- Fifth one this month 
+		- "Bayside butcher is a myth."
+		- Not the Kluswitz we know 
+			 - It's his brother. Two living brothers
+			 - Our Kluswitz left in disgrace 
+			 - Says it's an accident 
+		- Heartsight says he's chaotic evil
+- Looking for a cat
+	- Last seen near far east cathedral 
+	- Cat had bespoke leather collar 
+	- He bolted into an alley 
+	- Going to the cathedral 
+	- They're doing a fundraiser for kids
+		- It's pretty much rich people doing rich people things
+	- They're at a temple of gond
+		- T'ua talks with the acolytes about Tamatoa
+	- Mrs. Mittens is a Tabaxi named Neffi 
+	- Lady Perth Windham is really a Dragonborn named Svedka
+	- Neffi is pretty awesome. She's going to be our Chef
+	- Kjell's brother is a friend of Svedka
+	- Neffi will not steal 
+- Chatting with the Artificer 
+	- He's looking for a stolen prized artifact from a swaree 
+	- Turquoise sphere of pure gondenite 
+	- A tenant of the church is to not study the gondenite 
+	- It can do wonderous things. each one does something different
+- Back at the outpost 
+	- Mora's company was here
+	- They hired themselves an escort "The Blades Squad"
+		- The leader is known as "Splitcry Shiverskin"  

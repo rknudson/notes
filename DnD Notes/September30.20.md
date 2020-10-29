@@ -1,10 +1,10 @@
-#September 30th 2020
+# September 30th 2020
 - Wake Up
 	- Fancy gift basket is on the door 
 		- Has beer and such
 
 - Going to outpost
-	- Bringing merigold with
+	- Bringing Merigold with
 	- Got 5 gp + 6 silver for identification 
 	- Got a lollipop for the cat
 	- Got a rope and some rations
@@ -20,13 +20,19 @@
 	- T'ua starts building a "Gadget" 
 - Made it to Biscuit Bay
 	- Huge city
-	- Bussling trade port
+	- Bustling trade port
 		- Both air and sea ships
 	- Heart of the city is a sheltered bay
 	- Center has a island covered in lush greenery 
-	- Huge building covered in marble. Roof is a shimmering purple terracota tile 
+	- Huge building covered in marble. Roof is a shimmering purple terracotta tile 
 	- These guys have money
 	- Harbor is busy
 	- Tabaxi are in far east? 
 	- Biscuit Bay is very similar to Lubeck.
 	- Greeted by wyverns 
+- Guy wanted us to sign some papers
+	- The wyvern is the mount of choice for the Emprion Union
+- Conversation pit full of people doing opium
+	- Dude is Sheboygan 
+	- Has a sweet twelve string 
+	- 

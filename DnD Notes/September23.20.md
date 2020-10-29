@@ -66,8 +66,8 @@
 		- They turn into a dragon
 			- "if you believe in the prophecy I cannot speculate. however it will cause conflict if their nature becomes known" 
 			- We present Kjell an offer. In times long past, a dragon would choose a mortal champion. and enter in with them a bond of blood. 
-			- They are offering this to kjell, the dreamscale. 
-			- Kjell must murder the imperion union. 
+			- They are offering this to Kjell, the dreamscale. 
+			- Kjell must murder the Emprion Union. 
 			- They will bind their blood
 
 

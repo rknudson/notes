@@ -1,0 +1,51 @@
+# October 21st 2020
+- At the guild hall
+	- Picking up biscuit
+	- Bringing Neffi to the Dragon Drop 
+	- It's evening
+- Walking to graveyard 
+	- Bump into dude. Says he's with Oscar
+	- Seems sketch
+	- Kjell hits him with the stinkbreath and he passes out
+		- Kjell takes his badge #1114
+		- Kjell robs him. finds 11 silver and a fancy saphire 
+- Farse found "Mendoza the Truely Great" 
+	- He's a member of the Ombreic Penopticon
+- We get to the graveyard
+	- There's a burial happening 
+	- Big statue, one eyed, black raven, lightening god?
+	- Hooded figure is filling a lamp
+	- It's oscar
+- Talking about the butcher
+	- He's pretty much just a murderer
+	- Svedka is the new head of the family (Emperion Union?)
+		- She's got the guards in her pocked from donating the Wyverns
+	- Oscar is working the family from the inside
+	- Orcs are buying things magical
+	- Someone stole the gondinite for Svedka
+		- We probably shouldn't give it back to Svedka
+		- Probably shouldn't give it back to the church. It'd just be stolen again 
+
+- Oscar has two favors
+	- Wants us to bring the orb to someone 
+		- He goes by Peter. Has an Inn called the Salmon Head that no one is ever at. 
+	- Wants us to have us catch the butcher
+- Follow up
+	- Svedka is planning something big
+	- Apparently some want Kjell to return to the family
+	- The Union is five families (Based on the five heads of Tiamat)
+- Go to bed
+	- We hear Klauswitz say "This is where they are staying. Not tonight. Tomorrow" 
+- Gashapon o'clock
+	- Farce - Lantern of the Blind Third Eye (requires attunement) - While lit, this Hooded lantern burns for 6 hours on 1 pint of oil, shedding bright, lime green, light in a 30-foot radius and dim light for an additional 30 feet.Invisible creatures and Objects are visible as long as they are in the lantern's bright light.You can use an action to lower the hood, reducing the light to dim light in a 5-foot radius.
+	- Mora - Super Stree Vitality Powder - golden tarrask statue. Inside are three doses of powdered insect. Each dose provides 5d8 temporary HP for four hours.While under the effects of the powder, your skin turns bright red. You may benefit from the powder once every 24 hours.
+	- Kjell - Pippin's Pipe of Billowing Beasts - Clouds produced from puffing on this pipe take the form of any non-descript creature you have personally seen.You may describe the creature using any one adjective (brown dog, white cat). The next cloud will take that form and drift in the direction of the nearestliving creature that matches your description, within 10 miles. Smoke will disperse after 5 minutes, if it collides with a solid object or is disturbed by a strong wind.
+	- T'ua - Idol of Good Times and No Hassles (requires attunement) - a large medallion that hangs from a thick golden chain.Once per long rest the bearer may cast Calm Emotions in a 15 foot cone from the face of the medallion.Additionally, a coconut full of a refreshing tropical beverage appears in each affected creature's hand, if they have at least one hand free.
+- Wake Up
+	- Basket is there
+	- Has a note to Kjell
+	- From Svedka. She knows he's alive. We're supposed to meet her tonight
+	- Identify on Gondinite - It gives back any sort of force it encounters at a much greater magnitude
+- Found A tattoo shop
+	- Sheboygan was there getting Inked up. He's also a Claw Islander
+	
