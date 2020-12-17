@@ -1,0 +1,72 @@
+# December 16th 2020
+- Got out of there
+	- Gave biscuit goggles 
+	- Saw explosion
+	- Took a nap
+- Gachapon	
+	- Face - Earrings 
+	- Mora - Heroes Hilt
+	- T'ua - Doodleripper 9000. A claw-mounted chainsaw attachment designed to mangle fleeing enemies. Force-Empowered Rend deals 2d8 + 2 rip & tear damage during attacks of opportunity and reduce the target's movement speed by 10ft until the start of their next turn.
+	- Kjell - A quiver of 30 nilbog arrows. Each arrow has the outward appearance of a crude goblin-made arrow. Although being struck by a nilbog arrow gives the illusion of damage when hitting a target, it insteadheals them.
+	- Christine - Wiggler's Wand of Hysterics. A bright pink wand made of unnaturally pliable rose quartz, originally invented to help treat hysteria.The wand contains enough power to cast the spell 'Throes of Ecstacy' five times. After the final charge is expelled the wand explodes in a cloud of white smoke.
+- Next morning
+	- T'ua went dumpster Diving. Found a buncha gorbage 
+	- Thud and Trod - Mora's thugs
+	- Freya is here
+- Freya has breakfast with us
+	- "I don't take oweing favors lightly. I'm going to do something that has to stay between us" 
+	- "When you join the corvids you swear an oath of silence that you don't speak of anything of the organization to others" 
+	- "Willing to bend those rules for us" 
+	- "He's informed me that some of you might have an interest about what the Corvids do" 
+	- Shaboygan might know where Ta'esar is
+- Bertrand talks with Mora
+	- He's going to stay in Biscuit Bay
+	- "When yo get to the capital check out the Inn "Ravens Roost" it's where the Corvids meet and talk about business. Talk to the guy Running Dice Games. One hand has 6 fingers the other has four
+	- give him the ring and tell him the "Bird has come home to Roost" He might be able to get you in touch with the corvid who took Mora's Heirloom
+- In the Tattoo Parlor 
+	- Getting some ink 
+	- Shaboygan is Ta'esar's cousin 
+	- It is only because of him that he has any dealings with the corvids 
+	- So here's the thing what I can tell you is that ta'esar has been kept under house arrest 
+	- He's been detained by the current and former emporers 
+	- He's been working on a secret project. They're going out and grabbing magic items 
+	- Whenever i swing through the capital I pay him a visit
+	- Occasionally he asks me to do something for him> It is then that i ask you to do somethign fo rme. 
+	- I need to deliver freya's report back to the head of the corvids 
+	- Are you familiar with Jack don Vanhoof
+	- Do not get on his bad side 
+	- Shaboygan borrowed an airship from someone who's dad owns a dealership 
+	- Jack daw Vanhoof - Uncle to the emporer. 
+	- He might be the one that runs the show and the one responsible for the former emporer's untimely death 16 Years ago 
+	- This would be an opportunity to Get in good with the people who are keeping Tae'sar under house arrest 
+	- The corvids have been a passion project for the emperial family. They have money 
+	- We need to bring a collection of notes to Jack Da Vanhoof 
+	- Say the notes are from "The head of the cell in biscuit bay" 
+	- Have you heard anything about a lighthouse 
+		- Ta'sear's secret project involves building a lighthouse in the capital 
+- Leave Biscuit Bay
+	- Wyverns follow us
+	- Oscar is following us
+		- "You didn't think I was going to let you leave without saying goodbye" 
+		- Freya and I have come to an understanding
+		- Been meeting with the survivers of the trade league 
+		- They're going to cover up what happened last night 
+		- "My new family" "the Kjelland family" 
+		- They need to buy our silence 
+		- They are unloading shit
+		- We each get a package. 
+			- Inside each is: 300 GP 
+			- Another Chest - Each of us get a package 
+		- Large Treasure Chest with enough wages to cover the crew for 2 weeks and electrum for 14 Days  
+		- A dragonborn unloads a banner and it bears a crest of a Two headed dragon
+		- Svedka was able to walk free 
+		- Oscar gives Face a Wyvern 
+- Gifts 
+	- Face - Subsidiary that can pay us to run adventures 
+	- Kjell - Sweet musket  
+	- T'ua - Leaders from the temple of Gond. Set of Tools designed for working Gondenite. Could split gondenite into 3 pieces 
+	- Mora - Tooth 
+	- Christine - Bowtie that keeps the zombie alive forever 
+- Scene 
+	- The return of Bahamat draws close 
+	- Oscar knows Mr. Prism 

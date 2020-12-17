@@ -1,0 +1,11 @@
+# November 11th 2020
+- Bout to get murmaiderrrred
+	- Klauswitz has tools (He's the butcher)
+	- We're in a soap factory 
+	- Mess up some orcs
+- Post combat
+	- Tamatoa is rippin' Klauswitz's face off
+	- Jumped out a building
+	- Gondenite is in inner pocket
+- Zarza told Biscuit Oscar is in trouble
+	- Biscuit and Neffi are the only people in trouble 

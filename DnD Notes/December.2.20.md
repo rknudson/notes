@@ -1,0 +1,30 @@
+# December 2nd 2020
+- About to crash a wedding
+	- Identify = Jemstones - Enchanted to glow and glimmer
+	- Kjell goes through the kitchen
+	- We're going through the front door as Mora's enterage 
+	- Handing over weapons. Gave them Te'Ka
+- In the manor
+	- Met up with Kjell
+	- Brought our weapons
+	- Kjell is checking out a tree
+	- We are in the hall
+	- Has a Huge creature in there
+	- The huge creature is eating everyone
+- Svedka tells Shaboygan to stop
+	- She shouts fetch the device 
+	- There's a hologram
+	- It says "Plan is on course, still is on course for midnight. Did you hear something, go check it out." 
+	- 45 minutes left
+	- They're going to destroy the Empire's Navy
+	- She says "I hope this pleases you and your master" 
+	- Is a two way magical device for communication
+	- The huge creature is what's known as an "Etton"
+- A title in our kingdom for whoever brings them Kjell or Oscar
+	- Kjell hides behind Zarza
+	- Emperial Union Foot soldiers race out
+	- Farse challenges them to a dance off
+	- 3 v 3 Holgung
+	- Mongo the Etton & Durian vs Zarza, Mora, and Farse 
+- HOLGUNG 
+	- 

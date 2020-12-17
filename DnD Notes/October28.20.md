@@ -1,1 +1,37 @@
 # October 28th 2020
+- Down in the industrial district
+	- Looking through dumpsters
+	- Gang sees a man cross something out of a book
+	- Kjell watches the crowd and Klauswitz is the only person to pay any attention to the murder
+		- Klauswitz sees T'ua
+		- T'ua casts calm emotions and kicks it with Klauswitz 
+- Headed to Salmon Head Inn
+	- Going to give them the fake orb
+- Back to ship
+	- Mr. Mittenz is giving us a rundown. Biscuit is barking like a dog
+	- The crew might be taking off
+		- 3 mutinous members
+	- Left rations with Neffi
+- Walking through sailing district
+	- Farse bought rat on a stick
+- Got to Salmon Head Inn
+	- Swing by Bait Shop
+	- Hard Richard is selling Kjell some fancy line
+	- Kjell bought it
+- In the Inn itself
+	- At the bar. There's a bar along one side, booths on the other
+	- Mora Speaks with an Orc behind the bar
+	- His name's "Zarza" he says the boss is out and should be back soon
+	- Zarza makes us a drink.
+		- It's really good. Going to slug a bunch
+	- Zarza tries to buy Mora
+	- We get blackout and tip over
+- We've been kidnapped
+	- Tossed into a boat
+	- Hauled off somewhere
+	- Put in a cart. 
+	- We're all gunna get murdered
+- In the murder hole
+	- T'ua wiggles free
+	- Farce vomits acid in 
+	- 
