@@ -1,0 +1,37 @@
+# February 17th 2020
+
+- Headed to the map Location 
+	- Nim talks to an animal
+	- Get to lake
+	- Cross lake
+	- See statute
+- Statue has a elf and outstretched hand
+	- Stone blindfold 
+	- Never seen this plant before
+	- Robin gives Bulge a backrub
+	- Robin = Puck
+- Puck is the "God of Trickery" 
+	- He can't upset his queenn
+	- The forest is spooky and got spookier as we got close to the circle
+- In the Feywild
+	- Eats a berry
+	- Elves are wonderful because they create wonder 
+	- Elves are marvelous ^
+	- Elves are fantastic ^
+	- Elves are glamorous ^
+	- Elves are enchanting ^
+	- Elves are terrific ^
+- A minotaur stands in front of us
+	- The minotaur has an axe
+	- The minotaur serves the same queen as puck 
+	- The queen is Titiania = Queen of summer + winter and goddess of the feywild
+	- The queen has commanded him to protect the place
+	- The place is where king oberon makes his final rest
+	- He stands gaurd over the wedding ring
+- Kill the minotaur
+	- Pull out a ring
+	- Puck shows up
+	- Ring is super black 
+	- They made a ring of day and a ring of night
+	- The rings give them extraordinary abilities 
+	- Biscuit is Puck's daughter

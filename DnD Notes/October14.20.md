@@ -18,7 +18,7 @@
 - Made it to Zeineth Ventures
 	- Completing quests is known across guild halls 
 	- Checking the job board
-		- Royal Archaeological Society is looking for someone to accompany someone into the depths of a long for gotten cave system in which they have credible information indicating that a stronghold that was constructed of the era of the Obliete empire can be found. We can keep any items of value that are not of archeological significance - in Bialyvale
+		- Royal Archaeological Society is looking for someone to accompany someone into the depths of a long forgotten cave system in which they have credible information indicating that a stronghold that was constructed of the era of the Obliete empire can be found. We can keep any items of value that are not of archeological significance - in Bialyvale
 		- Lady Perth Windham is looking for Mrs Mittens (fancy writing)
 			- Says where the Windham estate is (on the private island)
 		- Pete Tom's is looking to buy your shiny shit. (punk rock)
@@ -55,3 +55,12 @@
 	- Mora's company was here
 	- They hired themselves an escort "The Blades Squad"
 		- The leader is known as "Splitcry Shiverskin"  
+- At the bar
+	- Bartender said Bialyvale wasn't always like this when the empire gave a shit
+	- Magistrate can do whatever he wants. 
+	- Turned a blind eye when he came up with the whole slavery thing 
+	- Bar used to be packed with students 
+	- Bladesquad might be Dwarves. They might be involved in bringing in slaves to town. 
+	- She gave us some places to check 
+		- Dancing Lilly 
+		- 

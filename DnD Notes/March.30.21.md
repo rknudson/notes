@@ -1,0 +1,17 @@
+# March 30th 2021
+- At a conference room in Bialyvale 
+	- Meeting U'rag Diddybunkwell
+	- James Hills is there
+	- Gives us 5K in gems
+	- Chat with the Captain
+	- He's going to help U'rag reclaim the throne
+	- Farce asked about magical hats
+		- Bluebird reference
+- Left the room. Back to the lobby
+	- Bladesquad got their licence revoked 
+	- Might be at the Bloody Vagabond 
+	- Receptionist might be at the Dancing Lilly
+- Biscuit tried to forge some documents to graduate
+	- Farce is no longer adventure daddy. Now Adventuring Company Parent Organization
+- On our way to the University District 
+	- 

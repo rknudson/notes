@@ -1,0 +1,43 @@
+# January 13th 2021
+- Find a dude with some cool rings and Tats
+	- The metals and tattoos are something known by Umbric Penopticon 
+	- He came here to find a demon of some sort
+	- His name is "Percy Ambrose"
+	- He got a passcode to the door from an "Urag Diddybunkwell" and swore to hold up a bargin with him
+- Scan the library 
+	- The mine was found by a "diddy" and "bunkwell" clan. 
+	- They found a lot of gemstones
+	- Made a ton of money
+	- Found an opening that had a lot of other mineshafts
+	- Foreman was summoned 
+	- Head of clan was summoned 
+	- Tragedy Struck
+	- Nearly all of the Diddy-Bunkwell clan perished (sans Amos)
+	- Mine was sealed off by "The Low King" 
+- Spider Guy comes in 
+	- Kill it
+	- Find a store room
+	- Christine found some rings
+	- C was smuggling rings
+	- Got some ore
+- Go way down 
+	- See an archway
+	- Past the archway is an immense underground cavern
+	- It is alive like the night sky
+	- Lots of skeletons
+	- King has a pickaxe in the back of his head. 
+	- Ziggurat in the middle. Tendrils coming from it
+- Percy says
+	- When our world was very young there were kingdoms
+	- Proto-civilizations that built ziggurat of black stone
+	- They performed sacrifices on it
+	- 13 ziggurats were raised. For each one a demon lord ruled it's section of the shadow realm
+	- Each ziggurat was a nexus for the shadow realm 
+	- Each one was powered by a black book
+	- Book was indescrutable
+	- The only thing that kept them in check was they were more compelled to fight with each other than unite 
+	- 11 of the 13 books are locked away. 
+	- One is lost below bearjaw
+	- This might be the 13th 
+	- Misfortune follows those who posses them
+	- 

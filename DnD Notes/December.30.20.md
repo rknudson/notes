@@ -1,0 +1,15 @@
+# December 30th 2020
+- On our way to Daveopolis
+	- Kjell charts a path 
+	- 40 aracana per peice
+		- 17 rolled
+	- Stop at the truck stop 
+	- Farce is training his dragon 
+	- Kjell gets a dirty 30 
+	- T'ua is building shit 
+	- Farce Named his dragon "Naga"
+	- This might have inspired us to go to terrapin 
+- Sailors say 
+	- for the last 3 generations. The emporerors
+	- Atlattle mountain lighthouse 
+	- These lights in the sky appeared after the lighthouse construction began 
