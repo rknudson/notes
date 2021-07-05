@@ -1,0 +1,32 @@
+# May 18th 2021
+- New Crew Members
+	- Terry The Wundergoose 
+	- Other Boris 
+- At mass grave again 
+	- Gaurds see us
+	- Lay down weapons
+	- Climb the rope ladder
+	- Almost get ralphed on by Christine 
+- On the deck. 
+	- Black coat with fur 
+	- Kiki = Corvid 
+- Captain addresses us 
+	- Try to finesse our way out of it
+- Get back to Bailyvaile 
+	- Get a cart
+	- Rest of the cart rides a fucking horse 
+- At Cheledonia  
+	- See lighthouse 
+	- Stream of golden light 
+	- Kinda like the Northern Lights but gold 
+	- Big ass palace. Has even bigger statue 
+	- Bearded gray warrior 
+	- Tons of people are flooding the city 
+- Young Emperor  
+	- Super young 
+	- Just came of age 
+	- Regent was his uncle 
+	- The city thinks the boy is just a figure and the uncle is the puppet master 
+- Staying at Rook's Rest Inn 
+	- Seems lit
+	- 
